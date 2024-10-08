@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @AqilaDzaky
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning many stuff
-- 📫 How to reach me @zackkerton@5gmail.com
+- 📫 How to reach me @zackkerton5@gmail.com
 - 😄 Pronouns: Dzaky
 - ⚡ Fun fact: I also like photography
 
